@@ -1,2 +1,0 @@
-# DemoDAW
-Proves diabòliques
